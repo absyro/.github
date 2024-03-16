@@ -1,4 +1,4 @@
-**Welcome to the official GitHub page of Absyro!**
+**Welcome to the official GitHub page of Absyro (Advanced Breakthrough Solutions Yielding Revolutionary Outcomes) company!**
 
 ## About Us
 
